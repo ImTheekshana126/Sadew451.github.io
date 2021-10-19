@@ -1,3 +1,3 @@
 ### MY PUBLIC WEBSITE 
 
-### [SADEW](https://ImTheekshana.github.io/)
+### [SADEW](https://Theekshana.github.io/)
